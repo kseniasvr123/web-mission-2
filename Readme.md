@@ -2,7 +2,7 @@
 
 ## Part 0
 
-[Link to video](Скоро будет)
+[Link to video] (https://drive.google.com/drive/folders/1EgtGu9TQtm3cJo8hnbcGp3U9XzppGvNR?usp=sharing)
 
 ## Part1
 
